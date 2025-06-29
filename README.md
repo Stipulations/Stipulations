@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a 21-year-old from North America, fully self-taught and always eager to learn and improve. I aspire to get my degree in Cybersecurity and Information Security one day.
+I'm a 22-year-old from North America, fully self-taught and always eager to learn and improve. I aspire to get my degree in Cybersecurity and Information Security one day.
 
 ## 🚀 Currently Working On:
 
